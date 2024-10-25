@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on dynamic web and backend projects where I can contribute through coding, debugging, and optimizing solutions. I’m excited to bring fresh ideas and determination to any team.
 
-📫 You can reach me at nataliacostamoura16@gmail.com or connect with me on LinkedIn.
+📫 You can reach me at nataliacostamoura16@gmail.com or connect with me on LinkedIn: https://www.linkedin.com/in/nat%C3%A1lia-costa-moura-0971662a0/
 
 😄 Pronouns: she/her
 
